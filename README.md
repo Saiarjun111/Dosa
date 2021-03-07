@@ -1,6 +1,19 @@
-# Dosa
-To prepare dosa first we need to make the batter
-by adding the ingredients and leave it for a day
+# to prepare Dosa
+Stir the batter. Stir the batter a couple of times with a ladle. Ideally, you will have a thick flowing batter. If too thick, add filtered water a tablespoon at a time to thin it out.
+Prepare for cooking. Before cooking the dosas, set out a little bowl with ghee or oil, a teaspoon, a spatula, a cup of water, and a few paper towels or a silicone pastry brush by the stove. I use a 1/3 measuring cup and a slightly curved large serving spoon, flat ladle, or the measuring cup to spread my dosa.
+Heat a skillet with ghee. Heat a large cast iron skillet, griddle, or nonstick pan over medium heat. (If you are a first timer, I suggest that you start with a nonstick pan, as it will be more forgiving than the cast iron which you can work yourself up to.) Add a couple drops of ghee or oil to the pan and lightly smear it all over with a paper towel or silicone pastry brush. If you have a sprayer for oil that will work best here. At this point, you don’t want to put too much ghee or oil, as this will make it difficult to spread the batter evenly. Sprinkle a few drops of water into the pan — if it sizzles, the pan is ready. Reduce the heat to low.
+Pour in batter. Pour 1/3 cup of the batter into the center of the pan. The batter should sizzle a bit.
+Spread the batter. Starting in the middle, swirl the batter using the bottom of a slightly curved large serving spoon, flat ladle, or measuring cup in a circular motion outwards until you have spread it out into a round dosa that is about 9 inches in diameter. It is important not to press down too hard with your spreading utensil. Spreading should happen more on the top surface than on the bottom.
+Add ghee to the edges and top of dosa. Increase the heat to medium. Wait a few seconds for the dosa to sizzle a little in the pan, and then drizzle about 1 teaspoon of ghee or oil around the edges of the dosa and on top.
+Cook the dosa. Cook until the dosa is dried out on top and you can see some browning and crisp spots appearing on the bottom, 2 to 3 minutes. When it’s ready, the dosa will peel off easily when you slide a flat spatula underneath. If you see the dosa browning but it is still sticking, just lower the heat and wait a few seconds, then probe around the edges with your spatula until you find an area that starts to give. Usually the whole dosa will unstick once you start to pull it up from that spot.
+Flip the dosa. Flip the dosa over and let cook for a few seconds. Flip it over again.
+Fold the dosa. If serving as-is, fold the dosa in half in the pan, then transfer it onto a plate for serving.
+Or fill and fold the dosa. To serve as masala dosa, spread a spoonful or two of potato palya on one half of the dosa. Fold the dosa in half in the pan to cover the filling, then slide it onto a plate for serving.
+Repeat with the remaining batter. Cool down the pan so you can easily spread your next dosa and prevent it from sticking to the pan by sprinkling in a little water. When the sizzling stops, heat the pan back up for the next dosa. Mix the dosa batter well before cooking the next one.
+Serve the dosas. Serve the dosas with chutney and sambar, or sprinkle with chutney pudi and serve with plain yogurt.
+RECIPE NOTES
+Fermenting tip: I usually put the bowls near my house plants as wild yeast helps to ferment the batter.
 
-#In the next day we need to put the batter in the frying pan and roast it until it becomes crispy.
-#to make another one repeat the same 
+Storage: The batter can be refrigerated up to a few days. Let come to room temperature before using, and stir well to recombine. This will ensure your dosas will have a nice golden color when cooked. I personally prefer to make dosas right after the batter has fermented, as it results in the best texture and color.
+
+Making paper dosas: To make a paper dosa, which is thinner and crunchier, you can use 1/4 cup batter and spread it thinner on the skillet. Use your spatula to flatten the batter down once you have spread it for extra crispiness
